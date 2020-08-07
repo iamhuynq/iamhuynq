@@ -1,1 +1,1 @@
-![Test Image 4](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcT9a3prl3b8Adv9FC9bM1Xn2bLG_rnIq_oFqg&usqp=CAU)
+![Test Image 4](https://cdn.lazytrips.com/photos/7b/ed/7bedfdce64c809775edd158877cac300-ht.jpg)
